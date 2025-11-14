@@ -1,1 +1,1 @@
-AI-neophyte looking to make top notch videos and pics! (practing a commit)
+AI-neophyte looking to make top notch videos and pics!
